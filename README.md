@@ -1,2 +1,2 @@
 # Drums
-Drum example
+Coming right up! Check back shortly!
